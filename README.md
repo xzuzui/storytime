@@ -7,11 +7,9 @@ written by my lovely best friend ^^
 You always wondered what it was like to fall in love someday, if it were terror or fantasy, turned your head and laughed, face joking “What’s it like to fall in love?”
 
 I never had an answer. 
-
 But I suppose, now I do. 
 
 Falling in love is like counting the stars, free falling through the sky; it’s screaming underwater and shadows of the dark warded off with a flashlight. It’s writing silly poems decorated with stickers and finding no words to express, running through the roads in late street lights, ruined, barefoot and alone. 
-
 Falling in love was scribbled grid book margins and anonymous stories addressed to you; falling in love was finding a universe I’d orbit eternal alone to gamble forever. 
 
 Falling in love was learning you loved flowers, the sky, the world at golden hour; it was crashing into meadows and eclipsing horizons, it was anything to do of yours. 
@@ -32,7 +30,7 @@ All this time I’d dreamed of falling just to fall right into you.
 
 And when your feet were bloody, heart bare, hands tight clung to the verandah, I shoved you from the heights of heaven and shot a fool back down to earth. 
 
-And in the place of dawn was the setting sun, molten gold in the kingdom of clouds; yours yours, all yours. 
+And in the place of dawn was the setting sun, molten gold in our kingdom of clouds and stars; yours yours, all yours. 
 
 “It’s golden hour; a better hour - one with you alive.”
 
@@ -40,7 +38,7 @@ You always wondered what it was like to fall in love someday, if it were terror 
 
 I never had an answer, mind turned against a lie. 
 
-But now that I have one waiting; one honest; hopeful; true, it’s much too late to kiss your grave and say that I love you.
+But now that I have one waiting; one honest; hopeful; true, but it’s much too late to kiss your grave and say that I love you.
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　      
