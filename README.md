@@ -16,9 +16,9 @@ Falling in love was scribbled grid book margins and anonymous stories addressed 
 
 Falling in love was learning you loved flowers, the sky, the world at golden hour; it was crashing into meadows and eclipsing horizons, it was anything to do of yours. 
 
-Falling in love was folding origami cranes a hundred times with my best paper; falling in love was breaking my heart to pieces and giving the last one to you. 
+Falling in love was folding origami cranes a hundred times with my best paper; falling in love was breaking my heart to pieces and giving every last shard to you. 
 
-I learned to lose myself within, shed the lies; the fake; the mask. I let you see my sorrow unbound,  my joy, my fear and pain; let you hear my scream for help when I stood on the edge of ending it all. 
+learning to lose myself within, shed the lies; the fake; the mask. I let you see my sorrow unbound,  my joy, my fear and pain; let you hear my scream for help when I stood on the edge of ending it all. 
 
 When my feet were bloody and heart lain bare, necklace married a ceiling fan, I dropped the glass I’d always used and found a stool instead. There was shattered porcelain and the sound of sleeping when I stepped into the kitchen, prayed I wouldn’t wake the neighbours when I let the ground slip from my feet. 
 
